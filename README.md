@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @happyteya
+- 👀 I’m interested in arts, and games.
+- 🌱 I’m currently learning coding.
+- 💞️ I’m looking to collaborate with people.
+- 📫 youtube: @wutisme
+- 😄 Pronouns: skibidi
+- ⚡ Fun fact: I am happy to be happy.
